@@ -1,2 +1,2 @@
-# FacesAverage2
-aaa
+# 《爱艺术的人》艺术项目
+
